@@ -4,7 +4,7 @@ I'm a independient studient interested primaly in web development and IA (for no
 I'm learning about html. css and javascript (i'm new about development).  
 I would like to collaborate on many projects and learn in the process.  
 
-if do you whant to contact me you can do it in 👇
+if do you want to contact me you can do it in 👇
 - gmail: ferosuna2001@gmail.com
 - instagram: fosuna18
 
